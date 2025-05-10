@@ -1,1 +1,0 @@
-# tallercorte2
